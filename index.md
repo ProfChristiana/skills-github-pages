@@ -1,4 +1,4 @@
 ---
-title: Welcome to my blog
+title: Bbbbadd, bad to the bone
 ---
 
